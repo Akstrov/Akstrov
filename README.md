@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Akstrov // Youssef EL HARDOUZI
-- 🌱 I’m currently learning on The Odin Project
 - 💞️ I’m looking to collaborate on anything in my capabilities
 - 📫 How to reach me : https://www.linkedin.com/in/youssef-elhardouzi/ Or https://twitter.com/youssefoptra
 
